@@ -7,8 +7,6 @@ Beterbiev vs Bivol 2 transmissão ao vivo: como assistir boxe online hoje – ho
 
 🔴 [ENTRAR AO VIVO►► CLIQUE AQUI PARA TRANSMITIR](https://jpn-srt.blogspot.com/)
 
-<a href="https://jpn-srt.blogspot.com/"><img src="https://camo.githubusercontent.com/fba2f80cc16cb7cee92a7b75e9351357b2314df93a82e6b963b2992db1bc504d/68747470733a2f2f65743230736c616d2e6e65742f77702d636f6e74656e742f75706c6f61647 32f323031392f31312f4372696348442d4c6976652d437269636b65742d53747265616d696e672d2545322538302539332d57617463682d4c6976652d437269636b65742d4f6e6c696e652d546f6461792e706e67"></a>
-
 Artur Beterbiev vs Dmitry Bivol 2 – também conhecido como The Last Crescendo – pelo título mundial indiscutível dos meio-pesados ​​não é apenas uma das melhores lutas peso por peso de 2025, mas tem, sem dúvida, o card de maior qualidade deste século. Beterbiev venceu por uma decisão apertada quando esses dois se encontraram em outubro, enquanto Bivol busca vingança
 
 A revanche épica na divisão dos meio-pesados ​​está pronta para começar. Artur Beterbiev e Dmitry Bivol estão de volta à Arábia Saudita para lutar pela coroa indiscutível em 175 libras apenas quatro meses após seu primeiro encontro épico.
