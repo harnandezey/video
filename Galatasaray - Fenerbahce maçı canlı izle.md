@@ -1,41 +1,41 @@
 # Galatasaray - Fenerbahce maçı canlı izle
 
-Where to watch Galatasaray vs Fenerbahce live stream: TV channel, start time, lineups, prediction for Super Lig match
+Galatasaray - Fenerbahçe canlı yayınını nereden izleyebilirsiniz: TV kanalı, başlangıç ​​saati, kadrolar, Süper Lig maçı tahmini
 
-🔴 [GO LIVE►► CLICK HERE TO STREAMING](https://newsmaxcafe.co.uk/soccer/)
+🔴 [CANLI YAYIN►► CANLI YAYIN İÇİN TIKLAYIN](https://newsmaxcafe.co.uk/soccer/)
 
-🔴 [STREAMING►► CLICK HERE TO WATCH LIVE](https://newsmaxcafe.co.uk/soccer/)
+🔴 [CANLI YAYIN►► CANLI YAYIN İÇİN TIKLAYIN](https://newsmaxcafe.co.uk/soccer/)
 
-🔴 [GO LIVE►► CLICK HERE TO STREAMING](https://newsmaxcafe.co.uk/soccer/)
+🔴 [CANLI YAYIN►► CANLI YAYIN İÇİN TIKLAYIN](https://newsmaxcafe.co.uk/soccer/)
 
-The Turkish Super Lig title race could take a decisive twist when Galatasaray welcome bitter rivals and closest title challengers Fenerbahce to Rams Park on Monday night to wrap up round 25.
+Galatasaray, pazartesi gecesi Rams Park'ta ezeli rakipleri ve en yakın şampiyonluk adayı Fenerbahçe'yi ağırladığında, Türkiye Süper Lig şampiyonluk yarışı belirleyici bir hal alabilir.
 
-Galatasaray secured a narrow 2-1 victory over Rizespor in their previous outing. Despite securing the three points, their display left much to be desired, with a late goal masking what was otherwise an underwhelming performance. Their superior quality ultimately proved decisive, but familiar defensive frailties were exposed yet again during a midweek Europa League stalemate with Alkmaar. Frustrations among fans continue to mount, with calls growing louder for manager Okan Buruk to step down.
+Galatasaray, önceki hafta Rizespor'a karşı 2-1'lik dar bir galibiyet elde etti. çıkış. Üç puanı garantilemelerine rağmen, performansları arzulananın çok altında kaldı, geç bir gol, aksi takdirde yetersiz bir performansı maskeledi. Üstün kaliteleri sonunda belirleyici oldu, ancak bilindik savunma zaafları, Alkmaar ile hafta ortasında oynanan Avrupa Ligi çıkmazında bir kez daha ortaya çıktı. Taraftarlar arasındaki hayal kırıklıkları, teknik direktör Okan Buruk'un istifa etmesi yönündeki çağrıların giderek artmasıyla artmaya devam ediyor.
 
-Holding a six-point lead over Fenerbahce in the standings, Gala don’t necessarily need a victory in this clash. However, if Buruk opts for a cautious game plan and drops too deep to absorb pressure, it could further strain his already fragile relationship with the supporters.
+Sıralamada Fenerbahçe'ye karşı altı puanlık bir üstünlüğe sahip olan Gala'nın bu çatışmada mutlaka bir galibiyete ihtiyacı yok. Ancak, Buruk temkinli bir oyun planı seçer ve baskıyı absorbe etmek için çok derinlere inerse, taraftarlarla zaten kırılgan olan ilişkisini daha da zorlayabilir.
 
-Meanwhile, Fenerbahce cruised to a 3-1 triumph over Kasimpasa in their latest league fixture. It was a textbook José Mourinho performance—efficient, measured, and defined by ruthless finishing rather than relentless attacking play. Unlike their rivals, Fenerbahce also progressed in the Europa League, seeing off Anderlecht to advance.
+Bu arada, Fenerbahçe son lig maçında Kasımpaşa'ya karşı 3-1'lik bir zafer kazandı. Bu, José Mourinho'nun ders kitabı performansıydı - etkili, ölçülü ve acımasız hücum oyunundan ziyade acımasız bitiricilik ile tanımlanıyordu. Rakiplerinin aksine, Fenerbahçe de Avrupa Ligi'nde ilerleme kaydetti ve Anderlecht'i yenerek bir üst tura yükseldi.
 
-Despite needing a win to close the gap at the top, Mourinho is unlikely to deploy an overly aggressive approach from the start. Instead, expect the Portuguese tactician to focus on control and discipline, with star man Anderson Talisca set to be his trump card. Having already proven his knack for big-game heroics during his time at Besiktas, Talisca could once again be the difference-maker in this high-stakes derby.
+Zirvedeki farkı kapatmak için bir galibiyete ihtiyaç duymasına rağmen, Mourinho'nun baştan itibaren aşırı agresif bir yaklaşım sergilemesi pek olası değil. Bunun yerine, Portekizli taktikçinin kontrol ve disipline odaklanmasını bekleyin, yıldız adam Anderson Talisca onun koz kartı olacak. Beşiktaş'taki zamanında büyük maç kahramanlıkları konusundaki yeteneğini kanıtlamış olan Talisca, bu yüksek bahisli derbide bir kez daha fark yaratan isim olabilir.
 
-Galatasaray vs Fenerbahce kick-off time
+Galatasaray - Fenerbahçe başlama saati
 
-Super Lig - Super Lig
-24 Feb 2025 - 23:00
+Süper Lig - Süper Lig
+24 Şub 2025 - 23:00
 Rams Global Stadyumu
 
-The match will be played at the Rams Global Stadium on Monday, February 24, with kick-off at 12 pm ET/9 am PT for fans in the US.
+Maç, 24 Şubat Pazartesi günü Rams Global Stadyumu'nda oynanacak ve ABD'deki taraftarlar için başlama saati 12:00 ET/09:00 PT olacak.
 
-Galatasaray will be without Álvaro Morata, who is sidelined with a hamstring issue. This absence could prompt Okan Buruk to deploy a strike partnership of Ahmed Kutucu and Victor Osimhen up front.
+Galatasaray, hamstring sorunu nedeniyle kenarda olan Álvaro Morata'dan yoksun olacak. Bu yokluk, Okan Buruk'u Ahmed Kutucu ve Victor Osimhen'den oluşan forvet ortaklığını forvette kullanmaya sevk edebilir.
 
-Mauro Icardi remains out for the remainder of the season due to a severe knee injury, while Ismail Jakobs continues to be hampered by an ongoing Achilles problem.
+Mauro Icardi, ciddi bir diz sakatlığı nedeniyle sezonun geri kalanında forma giyemeyecekken, Ismail Jakobs ise devam eden bir Aşil tendonu sorunuyla boğuşmaya devam ediyor.
 
-On the other side, Fenerbahce will be without Çağlar Söyüncü and Diego Carlos, although Alexander Djiku is expected to bolster the defense after overcoming his injury setback.
+Öte yandan Fenerbahçe, Çağlar Söyüncü ve Diego Carlos'tan yoksun olacak, ancak Alexander Djiku'nun sakatlık gerilemesini aştıktan sonra savunmayı güçlendirmesi bekleniyor.
 
-Meanwhile, both Jayden Oosterwolde and Rodrigo Becão have suffered season-ending knee injuries, adding to the club’s defensive woes. Midfielder Ismail Yüksek is also unavailable for selection.
+Bu arada, hem Jayden Oosterwolde hem de Rodrigo Becão sezon sonu diz sakatlıkları geçirdi ve kulübün defans sıkıntılarına katkıda bulundu. Orta saha oyuncusu Ismail Yüksek de kadroda yer alamıyor.
 
-Riding high on an eight-game unbeaten streak since early December, Fenerbahce are aiming to narrow their rivals' lead to just three points. Despite reported attempts by Galatasaray to prevent it, a foreign referee has been appointed for the match.
+Aralık ayının başından bu yana sekiz maçlık yenilmezlik serisiyle zirvede olan Fenerbahçe, rakiplerinin üstünlüğünü sadece üç puana indirmeyi hedefliyor. Galatasaray'ın bunu engelleme girişimlerine rağmen, maç için yabancı bir hakem atandı.
 
-Matchday 25 wraps up with a high-stakes edition of the Turkish Derby, as Galatasaray and Fenerbahce battle for more than just bragging rights—this showdown carries major title implications.
+25. maç günü, Galatasaray ve Fenerbahçe'nin sadece övünme hakları için değil, aynı zamanda büyük şampiyonluk için de mücadele ettiği Türk Derbisi'nin yüksek bahisli bir versiyonuyla sona eriyor.
 
-Galatasaray sit atop the Super Lig with 63 points and are shifting full focus to domestic competition after a disappointing Europa League exit. Fenerbahce, six points back at 57, are riding momentum from their European success and can close the gap to just three with a statement win in this critical clash.
+Galatasaray, Süper Lig'de 63 puanla zirvede oturuyor ve hayal kırıklığı yaratan Avrupa Ligi çıkışının ardından tüm odağını yerel rekabete kaydırıyor. 57 puanla altı puan geride olan Fenerbahçe, Avrupa başarısından ivme kazanıyor ve bu kritik mücadelede bir açıklama galibiyetiyle farkı sadece üçe indirebilir.
